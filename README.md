@@ -225,4 +225,4 @@ Extinct Animals is available as a complete free version for Windows, with all fe
 Get ready for an adventure in prehistoric zoo management—**download Extinct Animals today and start building your dream zoo!**
 
 ---
-**Last updated:** 2026-11-14 14:39:41 UTC
+**Last updated:** 2026-11-14 19:37:12 UTC
